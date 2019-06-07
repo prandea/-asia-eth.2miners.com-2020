@@ -1,0 +1,1 @@
+# -asia-eth.2miners.com-2020
